@@ -2,13 +2,13 @@
 
 This is the home of Lucien Schlatter.
 
-Please visit later for more about music, live and more.
-
 ### Music
 
-First song "Sweet Home" released 22.05.2022 can be listened here
+https://open.spotify.com/album/5JbV2YdLulT5Z9ZHC78ja1?si=Vh8sUVvVS5yE1X3hr1YDcA
 
-https://distrokid.com/hyperfollow/lucienschlatter/sweet-home-feat-faye
+https://open.spotify.com/album/5fAAs41BfKs8tRNB1hyoEC?si=pBgFjoecRSqMEjATLRB8ag
+
+https://open.spotify.com/album/2GbFW06bguk37zbSBqWERa?si=7PrQ3za3TPiDpzPmrIxFzA
 
 ### Contact
 
